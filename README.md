@@ -1,1 +1,1 @@
-# secondschoolproject_funny-
+# secondschoolproject_funny
